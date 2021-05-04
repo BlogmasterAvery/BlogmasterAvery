@@ -2,8 +2,7 @@
 - 👀 I’m interested in Speaking about trust, a story about a young couple got married, having a new place, a neighbor and his wife came to help them moving in. Months passed, while the couple were watching some sexy video, They saw themselves, called the police. Their place was wired by the neighbor.
 - 🌱 I’m currently learning shutting da fuck up
 - 💞️ I’m looking to collaborate on gun
-- 📫 How to reach me don't
-
+- 📫 How to reach me Avery#5241 on discord
 
 
 <!---
